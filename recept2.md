@@ -9,8 +9,13 @@ Voor 1 persoon
 ## Bereiding
 
 -breng water aan de kook
+
 -dit is de belangerijkste stap, verwijder de folie MAAR HALF
+
 -doe het pakje poeder open en voeg het bij de noodles
+
 -laat anderhalve minuut rusten en roer
+
 -enjoy!
+
 ---
